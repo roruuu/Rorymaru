@@ -11,7 +11,7 @@
 
 
 <div class="Box-sc-62in7e-0 hDfWZz"><img alt="tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS"></div>HAII i'm jasper/Rory/Roru/°ʚ🎀ɞ°
-i'm 15 Poly💕  yume <3
+I'm 15 Polyamory💕  yume <3
 black
 horrible mental state.....
 struggle with communication, and I have anxiety
@@ -26,4 +26,4 @@ okay bye lalaala chu
 
 
 
-<img alt="f389c13395a7aa1be8a64843a57d91eba9b99efba21cece8a76f6e404c9a6e2a.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/f389c13395a7aa1be8a64843a57d91eba9b99efba21cece8a76f6e404c9a6e2a.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
+\
