@@ -23,3 +23,4 @@ i'm a minor.
 Need gimmicks+draw me some sweet nice things ^_^
 okay bye lalaala chu
 <img alt="tumblr_9b13de6465763f3ae2efe4750016de2c_7d368dbb_2048.png.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_9b13de6465763f3ae2efe4750016de2c_7d368dbb_2048.png.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
+<img alt="2ea847d73287281e7affbde4db4b7c29e56b3bbdac887396cab5b3cf07c8e61e.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/2ea847d73287281e7affbde4db4b7c29e56b3bbdac887396cab5b3cf07c8e61e.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
