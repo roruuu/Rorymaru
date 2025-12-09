@@ -1,4 +1,6 @@
 # roruuu 
+<img alt="tumblr_1878633c7535a6525cbc8297a529beeb_2f02c8fa_1280.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_1878633c7535a6525cbc8297a529beeb_2f02c8fa_1280.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
+
 <img src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_a6a21ea536c792b59423e9839378a4be_2be5f906_1280.webp.png?raw=true" alt="tumblr_a6a21ea536c792b59423e9839378a4be_2be5f906_1280.webp.png"/>< 
 
 
