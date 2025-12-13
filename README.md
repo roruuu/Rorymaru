@@ -17,7 +17,7 @@ horrible mental state.....
 struggle with communication, and I have anxiety
 Dni: proships darkships pedos zoo's homophobia transphobia racism any other's that isn't right DO NOT INT (heavy dni)
 Be nice to me, other people and to. Don't be toxic or rude for no reason. Be mindful!  16+ 
-Free cuds/w2i pleaseeee  int or be my friend i'm so lonly  whisper to int (slow resp)
+Free cuds/w2i pleaseeee  int or be my friend i'm so lonely,,  whisper to int (slow resp)
 usually in the bakery area or somewhere else 
 i'm a minor.
 Need gimmicks+draw me some sweet nice things ^_^
