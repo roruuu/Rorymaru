@@ -23,7 +23,4 @@ usually in the bakery area or somewhere else
 i'm a minor.
 Need gimmicks+draw me some sweet nice things ^_^
 okay bye lalaala updates later.
-<img alt="tumblr_9b13de6465763f3ae2efe4750016de2c_7d368dbb_2048.png.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_9b13de6465763f3ae2efe4750016de2c_7d368dbb_2048.png.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
-
-
-
+\<img alt="tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
