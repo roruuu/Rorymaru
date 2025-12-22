@@ -2,15 +2,11 @@
 <img alt="tumblr_6a34c6132b000ad7bd0da0446dd0177e_302828ed_1280.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_6a34c6132b000ad7bd0da0446dd0177e_302828ed_1280.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
 
 
-<img src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_a6a21ea536c792b59423e9839378a4be_2be5f906_1280.webp.png?raw=true" alt="tumblr_a6a21ea536c792b59423e9839378a4be_2be5f906_1280.webp.png"/>< 
+<img src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_a6a21ea536c792b59423e9839378a4be_2be5f906_1280.webp.png?raw=true" alt="tumblr_a6a21ea536c792b59423e9839378a4be_2be5f906_1280.webp.png"/><         
 
 
-
-
-
-
-
-
+<div class="Box-sc-62in7e-0 hDfWZz"><img alt="tumblr_cf2126e1938b5c7494f57c87a1b38603_38dc8b53_1280.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_cf2126e1938b5c7494f57c87a1b38603_38dc8b53_1280.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS"></div>
+  
 <div class="Box-sc-62in7e-0 hDfWZz"><img alt="tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS"></div>HAII i'm jasper/Rory/Roru/°ʚ🎀ɞ°
 I'm 15 Polyamory💕  yume <3
 black
@@ -23,4 +19,4 @@ usually in the bakery area or somewhere else
 i'm a minor.
 Need gimmicks+draw me some sweet nice things ^_^
 okay bye lalaala updates later.
-\<img alt="tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
+<img alt="tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
