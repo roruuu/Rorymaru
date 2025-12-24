@@ -10,7 +10,7 @@
 I'm 15 Polyamory💕  yume <3
 black
 horrible mental state.....
-struggle with communication, and I have anxiety
+struggle with communication, and I have anxiety bpd autism mentally ill 
 Dni: proships darkships pedos zoo's homophobia transphobia racism any other's that isn't right DO NOT INT (heavy dni)
 Be nice to me, other people and to. Don't be toxic or rude for no reason. Be mindful!  16+ 
 Free cuds/w2i pleaseeee  int or be my friend i'm so lonely,,  whisper to int (slow resp)
