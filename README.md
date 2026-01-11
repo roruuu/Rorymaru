@@ -6,7 +6,7 @@
 
 
 
-<div class="Box-sc-62in7e-0 hDfWZz"><img alt="tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS"></div>HAII i'm jasper/Rory/Roru/°ʚ🎀ɞ°
+<div class="Box-sc-62in7e-0 hDfWZz"><img alt="tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.webp.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS"></div>HAII i'm jasper/Rory/Roro/Roru/°ʚ🎀ɞ°
 I'm 15 Polyamory💕  yume <3
 black
 horrible mental state.....
