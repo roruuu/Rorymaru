@@ -11,11 +11,10 @@ I'm 15 Polyamory💕  yume <3
 black
 horrible mental state.....
 struggle with communication, and I have anxiety bpd autism mentally ill 
-Dni: proships darkships pedos zoo's homophobia transphobia racism any other's that isn't right DO NOT INT (heavy dni)
-Be nice to me, other people and to. Don't be toxic or rude for no reason. Be mindful!  16+ 
+ Be mindful!  16+ 
 Free cuds/w2i pleaseeee  int or be my friend i'm so lonely,,  whisper to int (slow resp)
 usually in the bakery area or somewhere else 
 i'm a minor.
-Need gimmicks+draw me some sweet nice things ^_^
+Need gimmicks+draw me some sweet nice things or ask me questions ^_^
 okay bye lalaala updates later.
 <img alt="tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png" src="https://github.com/roruuu/Rorymaru/blob/main/tumblr_f66b4c91565982274fc3e5f9ca975706_bcd9db91_1280.png.png?raw=true" data-hpc="true" class="Box-sc-62in7e-0 eLrlvS">
